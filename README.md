@@ -1,1 +1,0 @@
-# UCSC-Wildlife-Guide
